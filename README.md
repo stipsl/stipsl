@@ -1,4 +1,3 @@
-![Picture of my DOG DIVA](https://cdn.discordapp.com/attachments/1291429139462623367/1307404783031685190/IMG-20241115-WA0009.jpg?ex=673a2f16&is=6738dd96&hm=9ac9e4d20afabea314dd988e5d381e0c0251bf6e4db437f0dd6774d7c75a23f2&)
 mrow mrow
 
 I don't trust people.
