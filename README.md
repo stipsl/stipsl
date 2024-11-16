@@ -20,3 +20,4 @@ I don't really interact with fandoms because of how disgusting some have gotten,
 
 ![test](https://cdn.discordapp.com/attachments/1291429139462623367/1307425514994139237/b73cf3a27c6b22d7da546cc51531b940.gif?ex=673a4265&is=6738f0e5&hm=ee4395ca3a0753ec7e794a6177d7785a2149c2b1bc4a688a253e1ab074c71280&)
 
+![dividertest](https://cdn.discordapp.com/attachments/1291429139462623367/1307431279951609917/tumblr_7fd17b496ff1a1371667ea90d4261bb8_45909b1b_400.png?ex=673a47c4&is=6738f644&hm=f766665e1ffbb08602f1ce6da5b08ae4123ed2786cfb9afa733c3a42ef0dffe5&)
