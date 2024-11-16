@@ -18,4 +18,5 @@ I'm mostly on PT, I only get on custom servers when I'm bored or playing with my
 
 I don't really interact with fandoms because of how disgusting some have gotten, and because I've had a lot of bad experiences with people that are in them. 
 
+![test](https://cdn.discordapp.com/attachments/1291429139462623367/1307425514994139237/b73cf3a27c6b22d7da546cc51531b940.gif?ex=673a4265&is=6738f0e5&hm=ee4395ca3a0753ec7e794a6177d7785a2149c2b1bc4a688a253e1ab074c71280&)
 
