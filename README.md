@@ -8,7 +8,7 @@ I'm romanian so my english isn't the best 😔😔
 
 My world <3 : @GothicCowboy [8/07/2021]
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&redirect=true)
 
 Pony Town stuff :
 
