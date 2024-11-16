@@ -8,6 +8,8 @@ I'm romanian so my english isn't the best 😔😔
 
 My world <3 : @GothicCowboy [8/07/2021]
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&redirect=true)
+
 Pony Town stuff :
 
 Please DNI if you're in any way associated with Hexl, I don't want to talk to people who support their disgusting actions. They've been sending death threats to minors and I consider that a really disgusting act. I, MYSELF make jokes like that but not around strangers or people I don't feel close to (basically people who know my humour). That's just immature. They're friends with someone named Randy on there btw, DNI if you're associated with that person too.
