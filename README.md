@@ -2,15 +2,15 @@
 
 ![divider](https://cdn.discordapp.com/attachments/1291429139462623367/1307432180812746792/tumblr_f56d7fee520ebb4851f3f38282ba36aa_0959304c_400.png?ex=673a489a&is=6738f71a&hm=e2899f7783e9335faee5ac9c78faba10b265d4ab78b9638e5cbad6bd6c8af9f0&)
 
-mrow mrow
+*mrow mrow*
 
-I don't trust people.
+*I don't trust people.*
 
-If I'm ignoring you or being dry it simply means I don't like you.
+*If I'm ignoring you or being dry it simply means I don't like you.*
 
-I'm romanian so my english isn't the best 😔😔
+*I'm romanian so my english isn't the best 😔😔*
 
-My world <3 : @GothicCowboy [8/07/2021]
+*My world <3 : @GothicCowboy [8/07/2021]*
 
 ![divider](https://cdn.discordapp.com/attachments/1291429139462623367/1307432180812746792/tumblr_f56d7fee520ebb4851f3f38282ba36aa_0959304c_400.png?ex=673a489a&is=6738f71a&hm=e2899f7783e9335faee5ac9c78faba10b265d4ab78b9638e5cbad6bd6c8af9f0&)
 
@@ -18,13 +18,13 @@ My world <3 : @GothicCowboy [8/07/2021]
 
 ![divider](https://cdn.discordapp.com/attachments/1291429139462623367/1307432180812746792/tumblr_f56d7fee520ebb4851f3f38282ba36aa_0959304c_400.png?ex=673a489a&is=6738f71a&hm=e2899f7783e9335faee5ac9c78faba10b265d4ab78b9638e5cbad6bd6c8af9f0&)
 
-Pony Town stuff :
+***Pony Town stuff :***
 
-Please DNI if you're in any way associated with Hexl, I don't want to talk to people who support their disgusting actions. They've been sending death threats to minors and I consider that a really disgusting act. I, MYSELF make jokes like that but not around strangers or people I don't feel close to (basically people who know my humour). That's just immature. They're friends with someone named Randy on there btw, DNI if you're associated with that person too.
+*Please **DNI** if you're in any way associated with Hexl, I don't want to talk to people who support their disgusting actions. They've been sending death threats to minors and I consider that a really disgusting act. I, MYSELF make jokes like that but not around strangers or people I don't feel close to (basically people who know my humour). That's just immature. They're friends with someone named Randy on there btw, DNI if you're associated with that person too.*
 
-I'm mostly on PT, I only get on custom servers when I'm bored or playing with my partner
+*I'm mostly on PT, I only get on custom servers when I'm bored or playing with my partner.*
 
-I don't really interact with fandoms because of how disgusting some have gotten, and because I've had a lot of bad experiences with people that are in them. 
+*I don't really interact with fandoms because of how disgusting some have gotten, and because I've had a lot of bad experiences with people that are in them.*
 
 ![divider](https://cdn.discordapp.com/attachments/1291429139462623367/1307432180812746792/tumblr_f56d7fee520ebb4851f3f38282ba36aa_0959304c_400.png?ex=673a489a&is=6738f71a&hm=e2899f7783e9335faee5ac9c78faba10b265d4ab78b9638e5cbad6bd6c8af9f0&)
 
