@@ -1,6 +1,8 @@
-![water](https://cdn.discordapp.com/attachments/1291429139462623367/1307435905228996669/d334f04678de4276c88122d697cbcc2f.gif?ex=673a4c12&is=6738fa92&hm=ceb13a026428cc7f29b339e79d641981acfa1d6e920cf65f511234788b6655c8&)
+![water](https://cdn.discordapp.com/attachments/1291429139462623367/1307435905228996669/d334f04678de4276c88122d697cbcc2f.gif?ex=6740e392&is=673f9212&hm=8d5e38ffb29ad2a74e1b7b9e050747aa89ac8646be813f2a6128b3cc515fbde8&)
 
 ![divider](https://cdn.discordapp.com/attachments/1291429139462623367/1307432180812746792/tumblr_f56d7fee520ebb4851f3f38282ba36aa_0959304c_400.png?ex=673a489a&is=6738f71a&hm=e2899f7783e9335faee5ac9c78faba10b265d4ab78b9638e5cbad6bd6c8af9f0&)
+
+![](https://komarev.com/ghpvc/?username=stipsl&color=09d5f6&abbreviated=true)
 
 *mrow mrow*
 
