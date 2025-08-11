@@ -19,7 +19,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&redirect=true)
 
 ![divider](https://files.catbox.moe/gno7ao.png)
-
+![blink1](https://files.catbox.moe/til09t.gif) ![blink2](https://files.catbox.moe/n46c4q.gif)
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
