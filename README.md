@@ -12,7 +12,7 @@
 
 *I'm romanian so my english isn't the best 😔😔*
 
-*My world <3 : @GothicCowboy [8/07/2021]*
+*My world <3 : @GothicCowboy [8/08/2021]*
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
