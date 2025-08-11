@@ -20,15 +20,8 @@
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
-***Pony Town stuff :***
-
-*I'm mostly on PT, I only get on custom servers when I'm bored or playing with my partner.*
-
-*I don't really interact with fandoms because of how disgusting some have gotten, and because I've had a lot of bad experiences with people that are in them.*
-
-*This is just basic info, check my rentry for more.*
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
-![primarina](https://files.catbox.moe/us69mo.gif)
+![kitty](https://files.catbox.moe/xjfgt5.gif)
 
