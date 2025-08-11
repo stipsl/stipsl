@@ -1,18 +1,18 @@
-<p align="center"> <img src="https://files.catbox.moe/66a2n2.gif"/>
+<p align="center"> <img src="https://files.catbox.moe/njt5kf.jpg"/>
 
 <p align="center"> <img src="https://files.catbox.moe/gno7ao.png"/>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=stipsl&color=2482c0&abbreviated=true"/>
 
-<p align="center">*mrow mrow*
+<p align="center">mrow mrow
 
-<p align="center">*I don't trust people.*
+<p align="center">I don't trust people.
 
-<p align="center">*If I'm ignoring you or being dry it simply means I don't like you.*
+<p align="center">If I'm ignoring you or being dry it simply means I don't like you.
 
-<p align="center">*I'm romanian so my english isn't the best 😔😔*
+<p align="center">I'm romanian so my english isn't the best 😔😔
 
-<p align="center">*My world <3 : @GothicCowboy [8/08/2021]*
+<p align="center">My world <3 : @GothicCowboy [8/08/2021]
 
 <p align="center"> <img src="https://files.catbox.moe/gno7ao.png"/>
 
