@@ -20,7 +20,7 @@
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
-![blink1](https://files.catbox.moe/til09t.gif) ![blink2](https://files.catbox.moe/n46c4q.gif) ![blink3](https://files.catbox.moe/vsn1se.gif) ![blink4](https://files.catbox.moe/vhtrge.gif) ![blink5](https://files.catbox.moe/b7zc16.gif)
+![blink1](https://files.catbox.moe/til09t.gif) ![blink2](https://files.catbox.moe/n46c4q.gif) ![blink3](https://files.catbox.moe/vsn1se.gif) ![blink4](https://files.catbox.moe/vhtrge.gif) ![blink5](https://files.catbox.moe/b7zc16.gif) ![blink6](https://files.catbox.moe/coiwg6.gif) ![blink7](https://files.catbox.moe/wq8e4f.gif) ![blink8](https://files.catbox.moe/rjq3qu.gif) ![blink9](https://files.catbox.moe/xn79vj.gif)
 
 ![divider](https://files.catbox.moe/gno7ao.png)
 
