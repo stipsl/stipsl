@@ -1,8 +1,8 @@
-<p align="center"> <img src="https://files.catbox.moe/xfrck3.gif"/>
+<p align="center"> <img src="https://files.catbox.moe/9mf8ww.jpg"/>
 
 <p align="center"> <img src="https://files.catbox.moe/gno7ao.png"/>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=stipsl&color=09d5f6&abbreviated=true"/>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=stipsl&color=2482c0&abbreviated=true"/>
 
 <p align="center">*mrow mrow*
 
