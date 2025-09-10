@@ -4,9 +4,13 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=stipsl&color=2482c0&abbreviated=true"/>
 
-<p align="center">mrow mrow
+<p align="center"> <img src="https://files.catbox.moe/dhyzxy.png"/>
+
+<p align="center"> <img src="https://files.catbox.moe/xxk0jo.png"/> mrow mrow <img src="https://files.catbox.moe/xxk0jo.png"/>
 
 <p align="center">My world <3 : @GothicCowboy [8/08/2021]
+
+<p align="center"> <img src="https://files.catbox.moe/rqjxkd.png"/>
 
 <p align="center"> <img src="https://files.catbox.moe/gno7ao.png"/>
 
