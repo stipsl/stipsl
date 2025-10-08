@@ -12,7 +12,7 @@
 
 <p align="center"> <img src="https://files.catbox.moe/rqjxkd.png"/>
 
-<p align="center"> Because I am overseas and a college student, I'm unable to help my partner financially in the way I plan to. Unfortunately, my partner and his family have been struggling for a long while and it's now getting significantly worse. I have attached his ko fi link below, any donos are appreciated. <3 Please check @GothicCowboy on github for more information.
+<p align="center"> Because I am overseas and currently attending college, I'm unable to help my partner financially in the way I plan to. Unfortunately, my partner and his family have been struggling for a long while and it's now getting significantly worse. I have attached his ko fi link below, any donos are appreciated. <3 Please check @GothicCowboy on github for more information.
   
 <p align="center"> https://ko-fi.com/gothiccowboy
 
