@@ -16,7 +16,7 @@
 
 <p align="center"> 
   
-[<img src="https://files.catbox.moe/7cvwpq.png">](https://ko-fi.com/gothiccowboy)
+[<img src="https://files.catbox.moe/zot89a.png">](https://ko-fi.com/gothiccowboy)
 
 
 <p align="center"> <img src="https://files.catbox.moe/gno7ao.png"/>
