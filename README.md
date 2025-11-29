@@ -15,8 +15,6 @@
 <p align="center"> Because I am overseas and currently attending college, I'm unable to help my partner financially in the way I plan to. Unfortunately, my partner and her family have been struggling for a long while and it's now getting significantly worse. Any donos are appreciated. <3 
  <div align="center">
 
- Please check [this](https://our-situation.straw.page/).
-
  <div></div>
  
  <div align="center">
