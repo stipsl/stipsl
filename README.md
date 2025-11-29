@@ -8,7 +8,7 @@
 
 <p align="center"> <img src="https://files.catbox.moe/xxk0jo.png"/> mrow mrow <img src="https://files.catbox.moe/xxk0jo.png"/>
 
-<p align="center"> My world <3 : @GothicCowboy [8/08/2021]
+<p align="center"> My world <3 : @Gothiccowgirl [8/08/2021]
 
 <p align="center"> <img src="https://i.postimg.cc/3RGthWmj/Licorice-Cookie.png"/>
 
