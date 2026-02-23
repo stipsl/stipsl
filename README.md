@@ -6,7 +6,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/s2wnmtyn/tumblr-f56d7fee520ebb4851f3f38282ba36aa-0959304c-400.png"/>
 
-<p align="center"> <img src="https://files.catbox.moe/xxk0jo.png"/> mrow mrow <img src="https://files.catbox.moe/xxk0jo.png"/>
+<p align="center"> <img src="https://i.postimg.cc/597XH4Hr/Licorice-Cookie-Jelly.png"/> mrow mrow <img src="https://i.postimg.cc/597XH4Hr/Licorice-Cookie-Jelly.png"/>
 
 <p align="center"> My world <3 : @Gothiccowgirl [8/08/2021]
 
