@@ -8,7 +8,6 @@
 
 <p align="center"> <img src="https://i.postimg.cc/597XH4Hr/Licorice-Cookie-Jelly.png"/> mrow mrow <img src="https://i.postimg.cc/597XH4Hr/Licorice-Cookie-Jelly.png"/>
 
-<p align="center"> My world <3 : @Gothiccowgirl [8/08/2021]
 
 <p align="center"> <img src="https://i.postimg.cc/3RGthWmj/Licorice-Cookie.png"/>
 
@@ -16,7 +15,6 @@
  
  <div align="center">
   
-[<img src="https://i.postimg.cc/Vs3Q5jCy/Untitled4894-20251016150600.png"/>](https://ko-fi.com/gothiccowboy)
 
 <div></div>
 
