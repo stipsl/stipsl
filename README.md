@@ -20,7 +20,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/s2wnmtyn/tumblr-f56d7fee520ebb4851f3f38282ba36aa-0959304c-400.png"/>
 
-<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)(https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&redirect=true)"/>
+<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31otxkxdca6plbwxg3w3sz7cxycy&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=31b800&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"/>
 
 <p align="center"> <img src="https://i.postimg.cc/s2wnmtyn/tumblr-f56d7fee520ebb4851f3f38282ba36aa-0959304c-400.png"/>
 
